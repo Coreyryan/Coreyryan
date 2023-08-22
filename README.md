@@ -1,0 +1,3 @@
+My name is Corey Ryan. I am a senior at Indiana University studying public financial management. 
+At 16 years old, I created Corey’s Car Care, an automotive detailing business. The entrepreneur journey has taught me endless amounts of lessons, such as strategy and customer service. Most importantly, I learned to take action. Too many great ideas die because they remain just a thought. I want to help people bring their innovative ideas to life. 
+I am a Fort Wayne native. In 2022, I obtained my life, accident, and health insurance license. Most recently, I was a a sales intern at Gallagher specializing in employee benefits in addition to operating Corey's Car Care. When I am not studying or working, I enjoy golfing, working out, and watching sports.
